@@ -1,4 +1,4 @@
 # Release page for blossom roms
 
-[Group](https://t.me/Blossom_Support) <BR>
-[Channel](https://t.me/Blossom_Roms)
+[Group](https://t.me/Vimal227_chat) <BR>
+[Channel](https://t.me/Vimal227_roms)
